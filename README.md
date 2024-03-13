@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on websites or small projects to develop my skills.
 - 📫 How to reach me: ---
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I still don't fully understand.
 
 
 <!---
